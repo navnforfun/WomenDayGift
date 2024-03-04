@@ -42,13 +42,9 @@ Chào em Thanh Nhàn,
 
 Nhân dịp Ngày Quốc tế Phụ nữ 8 tháng 3, Anh muốn gửi đến em những lời chúc ấm áp và ý nghĩa nhất!
 
-Chúc mừng em, người học ngành ngôn ngữ Hàn Quốc, nơi em có cơ hội khám phá văn hóa và ngôn ngữ mới. Anh hy vọng em sẽ tiếp tục đam mê và thành công trong hành trình học tập của mình.
+Nhân dịp đặc biệt này, anh mong em sẽ luôn rạng rỡ, vui vẻ và tràn đầy năng lượng. Hãy tự tin khẳng định bản thân và tỏa sáng trong mọi lĩnh vực của cuộc sống. Chúc em có một ngày 8/3 thật ý nghĩa, được yêu thương và trân trọng bởi những người xung quanh.
 
-Em, với vẻ ngoại hình "chubby", làm cho mọi người xung quanh cảm thấy ấm cúng và hạnh phúc. Anh mong em luôn giữ vững lòng tin vào bản thân, vì đẹp không chỉ đến từ ngoại hình mà còn từ sự tự tin và tình thần lạc quan.
-
-Chúc em luôn vui vẻ, hạnh phúc và tự tin trong mọi sự lựa chọn. Mong em sẽ có những ngày 8 tháng 3 tràn đầy niềm vui và nhận được nhiều điều ý nghĩa từ những người xung quanh.
-
-Anh luôn ở bên em, hỗ trợ và yêu thương em. Chúc em một ngày phụ nữ thật ý nghĩa!
+Mong rằng em sẽ luôn mạnh khỏe, hạnh phúc và thành công trong mọi việc. Chúc em một ngày Phụ nữ Việt Nam thật ý nghĩa và đáng nhớ!
 
 # phạm linh
 
